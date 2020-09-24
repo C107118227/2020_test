@@ -20,4 +20,4 @@
 
 [NKUST](https://www.nkust.edu.tw)
 
-[![](https://img.youtube.com/vi/sSm2dRarhPo/0.jpg)](https://www.youtube.com/watch?=sSm2dRarhPo "сука блять")
+[![](https://img.youtube.com/vi/sSm2dRarhPo/0.jpg)](https://www.youtube.com/watch?v=sSm2dRarhPo "сука блять")
